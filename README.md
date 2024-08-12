@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1Q4HU6nx10xyXMMpkz-g2E8Q8vCUKP3sA/view?usp=drive_link](https://drive.google.com/file/d/1Q4HU6nx10xyXMMpkz-g2E8Q8vCUKP3sA/view?usp=drive_link)
 
-- ⚡ Fun fact **I am passionate about analyzing problems and then working on it's solutions, with also expressing my creativity as an artist.**
+- ⚡ Fun fact **I am passionate about analyzing problems and working on it's solutions, with also expressing my creativity as an artist.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
