@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=khusiie&label=Profile%20views&color=0e75b6&style=flat" alt="khusiie" /> </p>
 
-- 🔭 I’m currently working on **Full-stack with a growing proficiency in backend development, focusing on building robust and scalable server-side applications**
+- 🔭 I’m currently working on **Full-stack with a growing proficiency in  Front-end and backend development, focusing on building robust and scalable server-side applications and client-side applications **
 
 - 🌱 I’m currently learning **backend**
 
