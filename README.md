@@ -13,7 +13,8 @@
 
 - 📫 How to reach me **kg7460502@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Q4HU6nx10xyXMMpkz-g2E8Q8vCUKP3sA/view?usp=drive_link](https://drive.google.com/file/d/1Q4HU6nx10xyXMMpkz-g2E8Q8vCUKP3sA/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Q4HU6nx10xyXMMpkz-g2E8Q8vCUKP3sA/view?usp=drive_link](https://drive.google.com/file/d/1317EG3vNeag8s1w0-S0ULT7iCFBPCu9b/view?usp=sharing
+)
 
 - ⚡ Fun fact **I am passionate about analyzing problems and working on it's solutions, with also expressing my creativity as an artist.**
 
